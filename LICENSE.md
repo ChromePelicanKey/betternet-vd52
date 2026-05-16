@@ -1,4 +1,4 @@
-
+Get the ultimate Betternet addon with ultra-secure Betternet Addon | kill-switch + cross-platform-support. Featuring kill-switch and cross-platform-support, it's the best choice
 
 
 
